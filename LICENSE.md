@@ -1,4 +1,4 @@
-# 
+# new DaVinci Resolve for PC | DaVinci Resolve for Windows Script | timeline-editing + batch-processing offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for Windows
 
 
 
